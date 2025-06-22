@@ -9,6 +9,6 @@
 
 ### Education
 - Закончил компьютерную академию "ШАГ"
-- 
+- [Диплом]{https://i.ibb.co/LXyx8fMG/diplom.jpg}
 
   
